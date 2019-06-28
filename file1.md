@@ -1,5 +1,0 @@
-# edit
-H
-
-
-abcdefghijklmnopqrstuvwxyz
